@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://naufaltsani.github.io/](https://naufaltsani.github.io/)
 
-- 📫 How to reach me **naufaltsani03.nt@gmail.com**
+- 📫 Reach me **naufaltsani03.nt@gmail.com**
 
 - ⚡ Fun fact **I'm good at playing fps games**
 
